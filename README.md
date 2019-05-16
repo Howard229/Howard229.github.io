@@ -1,2 +1,2 @@
 # Howard229.github.io
-My blog
+just for fun
